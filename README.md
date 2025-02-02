@@ -1,3 +1,8 @@
+![1rvg95](https://github.com/user-attachments/assets/0c6c7e0a-4d56-4077-8c7b-597a5d00c78f)
+
+
+https://github.com/user-attachments/assets/2f788bb8-1797-4c7a-9e88-d47531059cda
+
 
 # Projeto de Detector de Emoções
 
